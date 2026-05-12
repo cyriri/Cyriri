@@ -15,4 +15,4 @@ always tell me if your uncomfortable w me okay?
     "My love, why are you so cold and pale, just like the moonlight?"
 
 .・゜゜・.・。.・゜✭・
-![My GIF](https://tenor.com/view/azuretime-azuretime-forsaken-forsaken-roblox-forsaken-roblox-gif-5273878427448953896/path/to/your/gif.gif)
+
