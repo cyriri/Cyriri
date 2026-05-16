@@ -11,11 +11,9 @@ US.
 
 
 
-
-no.1 Harlequin fan :3 
-heh
 always tell me if your uncomfortable w me okay? 
-      c+h is okeyy! don't be shy I don't bite muehehhe 
+      c+h is okeyy! don't be shy I don't bite 
+       DNC! only insp okey? 
       
       
 
