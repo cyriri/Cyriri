@@ -13,5 +13,8 @@
     ${\color{#558E38}\text{they / them !! I love my wife ><➷. . .➹}}$
     <p align="center">
     ${\color{#F0F8F0}\text{(⁠⁠ꈍ⁠ᴗ⁠ꈍ⁠) live love laugh my love for Harlequin}}$
-      
+      <p align="center">
+    
+    "I love you forever and ever won't you let go of me I'll die if I have to in your memory" 
+
 
