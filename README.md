@@ -3,7 +3,7 @@
 <img src="https://litter.catbox.moe/hgudyqxn6sznz1hy.png" alt="gay">
 
   
-<img src="https://litter.catbox.moe/09gnzdemcd90hdd6.png" alt="twink">
+<img src="https://litter.catbox.moe/xxii2d66tqnzspmn.jpg" alt="twink">
 
 <img src="https://litter.catbox.moe/3rhkjj8usoyz3ou0.png" alt="femboy">
 
