@@ -2,8 +2,6 @@
 
 
 
-<p style="color:red;">This text is red</p>
-
 always tell me if your uncomfortable w me okay? 
       c+h is okeyy! don't be shy I don't bite 
        DNC! only insp okey? 
