@@ -1,14 +1,8 @@
-<𝚂𝚒𝚕𝚕𝚒𝚎𝚜 ;3
+<div align="center">
 
+<img src="https://litter.catbox.moe/p6h0pzx6iq67kdou.jpg" alt="gay">
 
+  
+<img src="https://litter.catbox.moe/w5un8bofheaa41gf.png" alt="twink">
 
-always tell me if your uncomfortable w me okay? 
-      c+h is okeyy! don't be shy I don't bite 
-       DNC! only insp okey? 
-      
-      
-
-
-    "My love, why are you so cold and pale, just like the moonlight?"
-
-.・゜゜・.・。.・゜✭・
+<img src="https://litter.catbox.moe/xx0oaaenlcvswusl.jpg" alt="femboy">
