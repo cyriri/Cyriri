@@ -1,4 +1,4 @@
-<font color="blue">Blue text</font>𝚂𝚒𝚕𝚕𝚒𝚎𝚜 ;3
+<𝚂𝚒𝚕𝚕𝚒𝚎𝚜 ;3
 
 
 
@@ -12,4 +12,3 @@ always tell me if your uncomfortable w me okay?
     "My love, why are you so cold and pale, just like the moonlight?"
 
 .・゜゜・.・。.・゜✭・
-
