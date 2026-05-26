@@ -10,12 +10,10 @@
 <p align="center">
     ${\color{#7DAC67}\text{call me cycy (⁠≧⁠▽⁠≦⁠). }}$
     <p align="center">
-    ${\color{#558E38}\text{they / them !! I love my wife ><➷. . .➹}}$
+    ${\color{#558E38}\text{ I saved the world by killing MY world.. ➷. . .➹}}$
     <p align="center">
-    ${\color{#F0F8F0}\text{(⁠⁠ꈍ⁠ᴗ⁠ꈍ⁠) live love laugh my love for Harlequin}}$
-      <p align="center"><𝚙 𝚊𝚕𝚒𝚐𝚗="𝚌𝚎𝚗𝚝𝚎𝚛">
-    ${\𝚌𝚘𝚕𝚘𝚛{#558𝙴38}\𝚝𝚎𝚡𝚝{𝓬𝓸𝓶𝓯 ! 𝚢𝚞𝚖𝚎}}$
-      <𝚙 𝚊𝚕𝚒𝚐𝚗="𝚌𝚎𝚗𝚝𝚎𝚛">
+    ${\color{#F0F8F0}\text{(⁠⁠ꈍ⁠ᴗ⁠ꈍ⁠) live love laugh my love for Harlequin 𝓬𝓸𝓶𝓯! 𝔂𝓾𝓶𝓮 𓃠}}$
+      
     
     
     "I love you forever and ever won't you let go of me I'll die if I have to in your memory" 
