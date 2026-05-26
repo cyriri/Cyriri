@@ -10,7 +10,7 @@
 <p align="center">
     ${\color{#7DAC67}\text{call me cycy (⁠≧⁠▽⁠≦⁠). }}$
     <p align="center">
-    ${\color{#558E38}\text{(⁠⁠ꈍ⁠ᴗ⁠ꈍ⁠) live love laugh my love for Harlequin 𝓬𝓸𝓶𝓯! 𝔂𝓾𝓶𝓮 𓃠}}$
+    ${\color{#558E38}\text{(⁠⁠ꈍ⁠ᴗ⁠ꈍ⁠) 𝓬𝓸𝓶𝓯 - 𝔂𝓾𝓶𝓮 𓃠}}$
     <p align="center">
     
     
